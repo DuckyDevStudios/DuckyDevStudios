@@ -2,7 +2,7 @@
 - 👀 I’m interested in Developing
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on technology
-- 📫 How to reach me du.ckydevgames@gmail.com 
+- 📫 How to reach me duckydevgames@gmail.com 
 - 😄 Pronouns: He/Him 
 
 <!---
